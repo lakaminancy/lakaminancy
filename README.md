@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @lakaminancy
-- 👀 I’m interested in learning what i dont know
+- 👀 I’m interested in learning what i dont know and collaborate with different people around the world
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me kimynancy008@gmail.com
+- 📫 How to reach me kamikainancy32@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact:Do you know why we drink water?Because we can't eat it. 
 
